@@ -4,7 +4,7 @@
 
 Soy desarrollador de Minecraft Paginas Webs y Discord bots
 Tengo 16 años 
-Puedes encontrar mas info en mi [Portafolio](https://santiivlog.vercel.app)
+Puedes encontrar mas info en mi [Portafolio](https://santiivlog.svstudios.online)
 
 <hr/>
 
